@@ -1,1 +1,1 @@
-# Kendise Quarte, 42432028, Lab number 2
+# Kendise Quartey, 42432028, Lab number 2
