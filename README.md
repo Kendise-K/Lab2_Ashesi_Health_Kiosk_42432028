@@ -1,1 +1,1 @@
-# Lab2_Ashesi_Health_Kiosk_42432028
+# Kendise Quarte, 42432028, Lab number 2
